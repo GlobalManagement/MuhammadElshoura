@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @MarchalMuhammadSulaiman
-- 👀 I’m interested in Gaining professional Skills
-- 🌱 I’m currently learning Brain Coding
-- 💞️ I’m looking to collaborate on Global Management
-- 📫 How to reach me https://www.YouTube/c/LogicTube
+- 👋 Hi, I’m @MuhammadAdam
+- 👀 I’m interested in Gaining professional Skills related to physical, mental, and spirtual domains
+- 🌱 I’m currently part of the Worlds Wide Webs
+- 💞️ I’m looking to collaborate on Our united Nature beings
+- 📫 How to reach me. Any place at Any time
 
 <!---
 MarchalMuhammadSulaiman/MarchalMuhammadSulaiman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
